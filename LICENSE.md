@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Bear for macOS extension with Bear for macOS advanced Extension - real-time editing and note encryption. Featuring real-time editing and note encryption, it's the
 
 
 
